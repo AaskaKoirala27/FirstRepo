@@ -1,3 +1,3 @@
 aaska koirala
 BSCS 
-King's College
+King's College new
